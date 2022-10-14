@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ddLion247
+- 👀 I’m interested in my bf
+- 🌱 I’m currently learning how to be better
+- 💞️ I’m looking to collaborate on knowledge :)
+- 📫 How to reach me? teach me
